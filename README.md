@@ -3,5 +3,5 @@
 3- Que red social usas mas?
 4- Cuanto tiempo tardas en llegar a la universidad (en minutos)
 
-Elias Ernesto Orellana Vasquez
+Elias Ernesto Orellana Vasquez, 
 Ariel Adolfo Diaz Sosa
